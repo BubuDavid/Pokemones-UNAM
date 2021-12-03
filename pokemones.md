@@ -22,4 +22,5 @@
 
 [Adolfo R. Ponce](https://github.com/AdolfoPomce)
 
-![image](https://assets.pokemon.com/assets/cms2/img/pokedex/full/038_f2.png)
+![image](https://assets.pokemon.com/assets/cms2/img/pokedex/full/700.png)
+
