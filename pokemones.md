@@ -19,3 +19,7 @@
 
 ![image](https://user-images.githubusercontent.com/57787993/132057081-0d745813-2df3-4199-8641-335398813587.png)
 
+[Andrés David](https://github.com/Andres-Dev393) 
+
+![image](https://assets.pokemon.com/assets/cms2/img/pokedex/full/134.png)
+
