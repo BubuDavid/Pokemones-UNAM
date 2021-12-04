@@ -19,6 +19,10 @@
 
 ![image](https://user-images.githubusercontent.com/57787993/132057081-0d745813-2df3-4199-8641-335398813587.png)
 
+[Edgar Iñaki](https://github.com/EdgarIn64) 
+
+![image](https://assets.pokemon.com/assets/cms2/img/pokedex/full/051_f2.png)
+
 [Aldo J.](https://github.com/Ajzv123) 
 
 ![image](https://assets.pokemon.com/assets/cms2/img/pokedex/full/471.png)
