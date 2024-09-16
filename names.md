@@ -15,3 +15,6 @@ Ramos Gutierrez Josue
 Claudia G Ramirez Lazares
 
 David Pedroza Segoviano
+
+
+Zohemy Panzo  Macuixtle
